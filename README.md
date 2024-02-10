@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🌱 I’m currently learning ...學習一切
+- 📫 How to reach me: ...discord?
+- 😄 Pronouns: ...無尾熊
